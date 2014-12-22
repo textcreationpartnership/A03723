@@ -36,10 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶A true and plaine
-report of the Furious outrages
-of Fraunce, & the horrible and
-shameful slaughter 
+
 1. TO THE READER.
 
 #####Body#####
